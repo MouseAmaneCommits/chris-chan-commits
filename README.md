@@ -1,8 +1,8 @@
-❔Any questions about repositories, please reach this email: christiancommits1337.2007@gmail.com
+❔Any questions about repositories, please reach this email: christiancommits1337@gmail.com
 
-💼Any job offers, please reach this email: christiancommits1337.2007@gmail.com
+💼Any job offers, please reach this email: christiancommits1337@gmail.com
 
-📈Any commissions, please reach this email: christiancommits1337.2007@gmail.com
+📈Any commissions, please reach this email: christiancommits1337@gmail.com
 
 #
 
